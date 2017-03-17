@@ -16,4 +16,4 @@ Also, please download the course's [zipped data file](https://github.com/jules32
 
 If you need wifi access please see Mike. Eduroam works here. 
 
-Toilets are out at the end of both corridors; the closest is just past our room to the right. 
+Toilets are out at the end of both corridors; the closest is just past our room to the right.  
